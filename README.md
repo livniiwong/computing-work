@@ -1,4 +1,4 @@
-:0 :D :C :/ :~) ~~ hello ~~ :0 :D :C :/ :~) 
+ ~~ hello ~~ 
 To all our teachers: 
 I'm happy that you're my teacher;
 I enjoy each lesson you teach.
