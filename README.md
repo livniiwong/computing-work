@@ -65,7 +65,7 @@ And as a teacher, you’re a star!
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 
 T hank you for all the
-Hours you spend,
+H ours you spend,
 A ttention you give,
 N eeds that you tend,
 K nowledge you pass on,
@@ -75,7 +75,7 @@ O ffering guidance,
 U ndaunted by much,
 
 T ime you spend planning,
-Efforts you make,
+E fforts you make,
 A ngles to learning.
 C hances you take.
 H ere’s to our teachers,
