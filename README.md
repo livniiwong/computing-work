@@ -19,3 +19,30 @@ You have taught historical concepts well to us well.
 You had taught us to infer from the source.
 You are always patient in rectifying our mistakes.
 Thank you!
+
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+
+A teacher is like Spring,
+Who nurtures new green sprouts,
+Encourages and leads them,
+Whenever they have doubts.
+
+A teacher is like Summer,
+Whose sunny temperament
+Makes studying a pleasure,
+Preventing discontent.
+
+A teacher is like Fall,
+With methods crisp and clear,
+Lessons of bright colors
+And a happy atmosphere.
+
+A teacher is like Winter,
+While it's snowing hard outside,
+Keeping students comfortable,
+As a warm and helpful guide.
+
+Teacher, you do all these things,
+With a pleasant attitude;
+You're a teacher for all seasons,
+And you have my gratitude!
