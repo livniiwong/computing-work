@@ -4,6 +4,7 @@ I'm happy that you're my teacher;
 I enjoy each lesson you teach.
 As my role model you inspire me
 To dream and to work and to reach.
+You are the best teacher in the world.
 
 With your kindness you get my attention;
 Every day you are planting a seed
