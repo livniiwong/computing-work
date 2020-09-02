@@ -49,18 +49,21 @@ And you have my gratitude!
 
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 
-I always love your class
-Your teaching helps me see,
-That to have a happy life,
-Learning is the key.
-You understand your students
-You’re sensitive and smart.
-You’re a skillful teacher
-I knew it from the start.
-I’m grateful for your wisdom
-For the teacher that you are
-You’re a very good person,
-And as a teacher, you’re a star!
+What we learn forms the filter
+through which we view the world.
+What we learn
+determines how we live our lives.
+Some teachers teach us the right things
+and make them easy to understand.
+Some teachers make learning fun,
+a joy that enriches all we do.
+Some teachers help lead us
+toward success and happiness.
+Some teachers are very important to us;
+we will always remember them.
+You are one of those teachers.
+Thank you for being my teacher.
+I really appreciate you!
 
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 
