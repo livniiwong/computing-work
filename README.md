@@ -46,3 +46,39 @@ Teacher, you do all these things,
 With a pleasant attitude;
 You're a teacher for all seasons,
 And you have my gratitude!
+
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+
+I always love your class
+Your teaching helps me see,
+That to have a happy life,
+Learning is the key.
+You understand your students
+You’re sensitive and smart.
+You’re a skillful teacher
+I knew it from the start.
+I’m grateful for your wisdom
+For the teacher that you are
+You’re a very good person,
+And as a teacher, you’re a star!
+
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+
+T hank you for all the
+Hours you spend,
+A ttention you give,
+N eeds that you tend,
+K nowledge you pass on,
+
+Y our special touch,
+O ffering guidance,
+U ndaunted by much,
+
+T ime you spend planning,
+Efforts you make,
+A ngles to learning.
+C hances you take.
+H ere’s to our teachers,
+E ach one a gem.
+R ecognized now; we,
+S alute them!
