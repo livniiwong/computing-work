@@ -11,9 +11,14 @@ Every day you are planting a seed
 Of curiosity and motivation
 To know and to grow and succeed.
 
+As the form teacher that you try your best to be;
+I feel blessed that I gained so much from your wise words.
+I often wonder, when will I ever meet the perfect form teacher?
+After you came along, I got my answer.
+
 You help me fulfill my potential;
 I'm thankful for all that you've done.
-I admire you each day, and I just want to say,
+I admire you every day, and I just want to say,
 As a teacher, you're number one!
 
 You have taught historical concepts well to us well.
@@ -89,15 +94,11 @@ S alute them!
 
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 
-Dear Teachers...
-You are like a candle
-That burns itself to spread light
-You gave us everything 
-By working hard day and night
-Just like how flowers give away
-Fragrance that they can't smell
-You have made our lives blossom
-In a way that words can't tell
+M uch love <3
+I appreciate you
+S pecial place in our class
+S uper amazing
 
-~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
-
+L ive, love, laugh
+I nspirational
+M erry and happy
