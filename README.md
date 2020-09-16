@@ -86,3 +86,14 @@ H ere’s to our teachers,
 E ach one a gem.
 R ecognized now; we,
 S alute them!
+
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+
+M uch love <3
+I appreciate you
+S pecial place in our class
+S uper amazing
+
+L ive, love, laugh
+I nspirational
+M erry and happy
