@@ -89,11 +89,15 @@ S alute them!
 
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 
-M uch love <3
-I appreciate you
-S pecial place in our class
-S uper amazing
+Dear Teachers...
+You are like a candle
+That burns itself to spread light
+You gave us everything 
+By working hard day and night
+Just like how flowers give away
+Fragrance that they can't smell
+You have made our lives blossom
+In a way that words can't tell
 
-L ive, love, laugh
-I nspirational
-M erry and happy
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+
