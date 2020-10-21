@@ -70,6 +70,8 @@ Some teachers are very important to us;
 we will always remember them.
 You are one of those teachers.
 Thank you for being my teacher.
+Thank you for being the teacher who does her best,
+Sacrificing your youth, time.  
 I really appreciate you!
 
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
